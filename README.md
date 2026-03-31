@@ -7,3 +7,5 @@ Skins Will Get updated The More Skins I Make Public!
 
 **Skins were added in order from the newest to the oldest**
 1. [⌈ - Fia - ⌋ ✧ 2026 +HDDT](https://drive.google.com/drive/folders/1ztLV8c4bQQNc3NghUY5qAYNqxjTsYgFA?dmr=1&ec=wgc-drive-%5Bmodule%5D-goto)
+
+2.[⌈ - Fia - ⌋ ✧ 2026 HDDT - Blue Cursor ! [THIS IS THE ARCHIVED ORIGNAL VERISON!!!!]](https://drive.google.com/drive/folders/1He9HAo8LiVjS6Pqivpcprm2nBX1BUNjE)
