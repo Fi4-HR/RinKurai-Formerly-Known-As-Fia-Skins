@@ -22,7 +22,9 @@ His Youtube : https://www.youtube.com/@FaintLineFia
 
 # 3.[⌈ - Fia - ⌋ ✧ 2026 HDDT - Green Cursor ! [THIS IS THE ARCHIVED ORIGNAL VERISON!!!!]](https://drive.google.com/drive/folders/1He9HAo8LiVjS6Pqivpcprm2nBX1BUNjE)
   
-  No Image Avalible
+  ![screenshot197](https://github.com/user-attachments/assets/f8cea8e0-ced4-4b2b-aaa4-a22224cac130)
+
 
 # 4.[⌈ - Fia - ⌋ ✧ 2026 HDDT - Yellow Cursor ! [THIS IS THE ARCHIVED ORIGNAL VERISON!!!!]](https://drive.google.com/drive/folders/1He9HAo8LiVjS6Pqivpcprm2nBX1BUNjE)
 
+![screenshot202](https://github.com/user-attachments/assets/1060d76d-8cac-48ba-85ab-0f135e8d0d9b)
