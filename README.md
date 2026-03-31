@@ -3,6 +3,8 @@ All My Osu Skins!
 
 𝓡𝓲𝓷𝓚𝓾𝓻𝓪𝓲 𝓕𝓸𝓻𝓶𝓮𝓻𝓵𝔂 𝓕𝓲𝓪 𝓢𝓴𝓲𝓷𝓼 𝓞𝓯𝓯𝓲𝓬𝓪𝓵
 
+His Youtube : https://www.youtube.com/@FaintLineFia
+
 Skins Will Get updated The More Skins I Make Public!
 
 
