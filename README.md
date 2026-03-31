@@ -10,7 +10,8 @@ Skins Will Get updated The More Skins I Make Public!
 
 1.[⌈ - Fia - ⌋ ✧ 2026 +HDDT](https://drive.google.com/drive/folders/1ztLV8c4bQQNc3NghUY5qAYNqxjTsYgFA?dmr=1&ec=wgc-drive-%5Bmodule%5D-goto)
 
-  No Image Avalible
+  <img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/94602497-fe32-44ed-9e09-58f989419c2b" />
+
 
 2.[⌈ - Fia - ⌋ ✧ 2026 HDDT - Blue Cursor ! [THIS IS THE ARCHIVED ORIGNAL VERISON!!!!]](https://drive.google.com/drive/folders/1He9HAo8LiVjS6Pqivpcprm2nBX1BUNjE)
   
