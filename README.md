@@ -1,4 +1,4 @@
-# RinKurai-Formerly-Known-As-Fia-Skins
+# ImAFancyMan!-Formerly-Known-As-Fia-Skins
 All My Osu Skins!
 
 𝓘𝓶 𝓐 𝓕𝓪𝓷𝓬𝔂 𝓜𝓪𝓷 ! / 𝓕𝓲𝓪 𝓢𝓴𝓲𝓷𝓼 𝓞𝓯𝓯𝓲𝓬𝓪𝓵
