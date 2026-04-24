@@ -1,7 +1,7 @@
 # RinKurai-Formerly-Known-As-Fia-Skins
 All My Osu Skins!
 
-𝓡𝓲𝓷𝓚𝓾𝓻𝓪𝓲 𝓕𝓸𝓻𝓶𝓮𝓻𝓵𝔂 𝓕𝓲𝓪 𝓢𝓴𝓲𝓷𝓼 𝓞𝓯𝓯𝓲𝓬𝓪𝓵
+𝓘𝓶 𝓐 𝓕𝓪𝓷𝓬𝔂 𝓜𝓪𝓷 ! / 𝓕𝓲𝓪 𝓢𝓴𝓲𝓷𝓼 𝓞𝓯𝓯𝓲𝓬𝓪𝓵
 
 His Youtube : https://www.youtube.com/@FaintLineFia
 
