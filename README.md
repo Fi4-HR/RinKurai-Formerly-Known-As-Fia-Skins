@@ -3,7 +3,7 @@ All My Osu Skins!
 
 𝓘𝓶 𝓐 𝓕𝓪𝓷𝓬𝔂 𝓜𝓪𝓷 ! / 𝓕𝓲𝓪 𝓢𝓴𝓲𝓷𝓼 𝓞𝓯𝓯𝓲𝓬𝓪𝓵
 
-His Youtube : https://www.youtube.com/@FaintLineFia
+His Youtube : https://www.youtube.com/@ImAFancyMan-Osu
 
 # Skins Will Get updated The More Skins I Make Public!
 
