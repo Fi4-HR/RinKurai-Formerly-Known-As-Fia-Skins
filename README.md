@@ -12,7 +12,8 @@ His Youtube : https://www.youtube.com/@ImAFancyMan-Osu
 
 # 1.[⌈ -Fia- ⌋ 2026 +HDDT [B&W]](https://drive.google.com/drive/folders/1Gy9SK8Vm_sb7MsxS5_MaQqKGn6XREzOj?usp=sharing)
 
-  <img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/94602497-fe32-44ed-9e09-58f989419c2b" />
+<img width="1920" height="1080" alt="screenshot038" src="https://github.com/user-attachments/assets/201bacd5-486f-4e7b-bed5-7cfbd962012a" />
+
   
 # 2.[⌈ - Fia - ⌋ ✧ 2026 +HDDT](https://drive.google.com/drive/folders/1ztLV8c4bQQNc3NghUY5qAYNqxjTsYgFA?dmr=1&ec=wgc-drive-%5Bmodule%5D-goto)
 
